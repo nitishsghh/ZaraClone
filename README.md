@@ -14,3 +14,4 @@ Img..
 ### collection of zara 🤭
 ![collection ](https://github.com/nitishsghh/ZaraClone/assets/120895433/42c09402-cdf0-4a42-93b5-985b84fc7ac7)
 
+ <h1>Thanks To Watch This Project ✨️</h1>
